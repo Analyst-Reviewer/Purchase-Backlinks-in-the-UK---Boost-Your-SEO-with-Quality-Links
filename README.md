@@ -25,8 +25,8 @@ We recommend [Adsy](https://ref.adsy.com/?ref=referral&ref_type=direct&ref_id=jc
 - **Transparency** – Gain full visibility and control over your link purchases.
 
 By acquiring backlinks from Adsy, you streamline your link-building process, ensuring improved search engine visibility and long-term SEO benefits.
-<a href="https://github.com/user-attachments/assets/9f92f2e0-245b-4159-902d-bdb5abc42835">
-    <img src="https://github.com/user-attachments/assets/9f92f2e0-245b-4159-902d-bdb5abc42835" alt="Image">
+<a href="https://github.com/user-attachments/assets/15b1e490-a8ec-43cb-884d-187daef78d22">
+    <img src="https://github.com/user-attachments/assets/15b1e490-a8ec-43cb-884d-187daef78d22" alt="Image">
 </a>
 
 ### Key Criteria for Effective UK Backlinks
